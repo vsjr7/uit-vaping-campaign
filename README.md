@@ -1,1 +1,1 @@
-# uit-vaping-campaign
+# quit-vaping-campaign
